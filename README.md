@@ -1,0 +1,1 @@
+# PowerBI_Design_IMAGE-CLIP-ANIMATION
